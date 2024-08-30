@@ -1,5 +1,10 @@
-## Hi there 👋
+# INTRODUCTION!
+Welcome to RVSC-Getarounds this organisation is based around finding all unblocked game/movie sites for RVSC.
 
+# HOW TO CONTRIBUTE!
+You can go to discusiions and add in your unblocked websites for us to add!
+
+#
 <!--
 
 **Here are some ideas to get you started:**
