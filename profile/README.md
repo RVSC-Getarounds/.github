@@ -4,7 +4,9 @@ Welcome to RVSC-Getarounds this organisation is based around finding all unblock
 # HOW TO CONTRIBUTE!
 You can go to discusiions and add in your unblocked websites for us to add!
 
-#
+# How To Join Us!
+Just Request It In The Q&A And I'll Send You A Join Request!
+
 <!--
 
 **Here are some ideas to get you started:**
